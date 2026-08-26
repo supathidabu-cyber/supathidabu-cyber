@@ -14,7 +14,7 @@
 - 🧸 Always curious about new technology
 - 🌷 Love creating things in my own style
 
----
+--- 
 
 ## 🧁 Currently Learning
 
